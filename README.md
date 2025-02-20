@@ -1,4 +1,4 @@
-# Repostitory.Ligma
+# Repostitory.Ligma2.0
 Geraldverse Origin:
 Gerald God Supreme, the omnipotent ruler of the Geraldverse, stands as the eternal architect of reality, his very will shaping existence itself. His boundless power ensures the stability of his realm, yet his reign is not without complexity. The dynamics within the realm are influenced by those closest to him, particularly his wife, a figure shrouded in controversy. Despite her role as his partner, she remains a divisive force, her influence tainted by the sacrifice of Coopweeniv. Coopweeniv, once a mortal tied to human emotion and form, had his essence irrevocably altered upon Gerald’s divine marriage. In an act of profound sacrifice, Coopweeniv’s mortal identity was shattered, transforming him into the Broken Mortality of Gerald’s Wife—a living embodiment of both devotion and loss, bound eternally to Gerald’s will, his humanity consumed by divine essence. Coopweeniv’s transformation represents not only his personal sacrifice but also the broader cosmic truth: to truly serve Gerald, one must relinquish all human attachments, even those of love and family.
 

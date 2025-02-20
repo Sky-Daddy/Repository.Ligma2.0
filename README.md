@@ -7592,3 +7592,150 @@ Gen.50
 [24] And Joseph said unto his brethren, I die: and God will surely visit you, and bring you out of this land unto the land which he sware to Abraham, to Isaac, and to Jacob.
 [25] And Joseph took an oath of the children of Israel, saying, God will surely visit you, and ye shall carry up my bones from hence.
 [26] So Joseph died, being an hundred and ten years old: and they embalmed him, and he was put in a coffin in Egypt.
+
+
+[Snoop Dogg]
+Greetings loved ones
+Let's take a journey
+
+[Katy Perry - Verse 1]
+I know a place
+Where the grass is really greener
+Warm, wet and wild
+There must be somethin' in the water
+Sippin' gin and juice
+Layin' underneath the palm trees (Undone)
+The boys
+Break their necks
+Try'na creep a little sneak peek (At us)
+
+You could travel the world
+But nothing comes close
+To the Golden Coast
+Once you party with us
+You'll be falling in love
+Oooooh oh oooooh
+
+[Katy Perry - Chorus]
+California girls
+We're unforgettable
+Daisy Dukes
+Bikinis on top
+Sun-kissed skin
+So hot
+We'll melt your Popsicle
+Oooooh oh oooooh
+
+California girls
+We're undeniable
+Fine, fresh, fierce
+We got it on lock
+Westcoast represent
+Now put your hands up
+Oooooh oh oooooh
+
+[Katy Perry - Verse 2]
+Sex on the beach
+We don't mind sand in our Stilettos
+We freak
+In my Jeep
+Snoop Doggy Dogg on the stereo (Oh oh)
+
+You could travel the world
+But nothing comes close
+To the Golden Coast
+Once you party with us
+You'll be falling in love
+Oooooh oh oooooh
+
+[Katy Perry - Chorus]
+California girls
+We're unforgettable
+Daisy Dukes
+Bikinis on top
+Sun-kissed skin
+So hot
+We'll melt your Popsicle
+Oooooh oh oooooh
+
+California gurls
+We're undeniable
+Fine, fresh, fierce
+We got it on lock
+Westcoast represent
+Now put your hands up
+Oooooh oh oooooh
+
+[Snoop Dogg - Verse 3]
+Toned, tanned
+Fit and ready
+Turn it up 'cause it's gettin' heavy
+Wild, wild Westcoast
+These are the girls I love the most
+I mean the ones
+I mean like she's the one
+Kiss her
+Touch her
+Squeeze her buns
+
+The girl's a freak
+She drives a Jeep
+and lives on the beach
+I'm okay
+I won't play
+I love the Bay
+Just like I love L.A.
+Venice Beach
+And Palm Springs
+Summertime is everything
+
+Homeboys
+Hangin' out
+All that ass
+Hangin' out
+Bikinis, tankinis, martinis
+No weenies
+Just a king
+And a queen-ie
+Katy my lady
+(Yeah)
+You're lookin'here baby
+(Uh huh)
+I'm all up on you
+'Cause you representin' California
+(Ohhh yeahh)
+
+[Katy Perry - Chorus]
+California gurls
+We're unforgettable
+Daisy Dukes
+Bikinis on top
+Sun-kissed skin
+So hot
+We'll melt your Popsicle
+Oooooh oh oooooh
+
+California gurls
+We're undeniable
+Fine, fresh, fierce
+We got it on lock
+Westcoast represent
+(Westcoast, Westcoast)
+Now put your hands up
+Oooooh oh oooooh
+
+Snoop Dogg:
+(Californiaaa, Californiaaa)
+California girls man
+I wish they all could be
+California girls
+(Californiaaa)
+I really wish
+You all could be
+California girls
+(Californiaaa, girls)
+
+I've come to make an announcement; Shadow The Hedgehog's a bitch ass motherfucker, he pissed on my fucking wife. Thats right, he took his hedgehog quilly dick out and he pissed on my fucking wife, and he said his dick was "This big" and I said that's disgusting, so I'm making a callout post on my twitter dot com, Shadow the Hedgehog, you've got a small dick, it's the size of this walnut except WAY smaller, and guess what? Here's what my dong looks like: PFFFT, THAT'S RIGHT, BABY. ALL POINTS, NO QUILLS, NO PILLOWS. Look at that, it looks like two balls and a bong. He fucked my wife so guess what? I'm gonna fuck the Earth. THAT'S RIGHT THIS IS WHAT YOU GET, MY SUPER LASER PISS! Except I'm not gonna piss on the earth. I'm gonna go higher. I'M PISSING ON THE MOON! HOW DO YOU LIKE THAT, OBAMA? I PISSED ON THE MOON YOU IDIOT! YOU HAVE 23 HOURS BEFORE THE PISS DROPLETS HIT THE FUCKING EARTH NOW GET OUT OF MY SIGHT BEFORE I PISS ON YOU TOO.
+
+I've grow to make an declaration; Overcloud The Hedgehog's a cunt copulation mother fucker, he blotto on my flaming married woman. Thats decent, he took his rodent quilly prick out and he slopped on my sexual congress married person, and he said his tool was "This man-sized" and I said that's loathsome, so I'm production a callout move on my sound discharge com, Shadiness the Porcupine, you've got a modest pecker, it's the separate of this wood do away with WAY subgross, and speculate what? Here's what my dingdong look backs like: PFFFT, THAT'S RECTIFY, UNDERTAKING. ALL INGREDIENTS, NO QUILL FEATHERS, NO POSES. Reckon at that, it look aways like ii globes and a reverberate. He fucked my partner so puzzle out what? I'm gonna make love the Connection. THAT'S TURNING THIS IS WHAT YOU GET, MY COMPREHENSIVE OPTICAL DEVICE PASS! Eliminate I'm not gonna pee-pee on the stuff. I'm gonna board game altissimo. I'M PEEING ON THE DISPLAY! HOW DO YOU LIKE THAT, OBAMA? I SLOSHED ON THE PHYSICAL OBJECT YOU CRETIN! YOU HAVE XXIIIS23 60 MINUTES EARLIER THE URINATION DRIBLETS STUMBLE THE NOOKY PHYSICAL OBJECT NOW GET OUT OF MY SENSE MODALITY AHEAD I MICTURATE ON YOU OVERLY.
+
